@@ -1,4 +1,4 @@
-
+updated all star tower defense Scripts is the best all star tower defense Script, featuring instant win and auto-sell. Safe and powerful for all your
 
 
 
